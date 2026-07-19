@@ -3,6 +3,7 @@ These are free stock images of robot characters I drew as a hobby.I'm not very g
 All of my original characters are in the public domain.I have relinquished both the copyright to my illustrations and the copyright to the characters.You are free to edit or modify my illustrations, but I will not be held responsible for any problems that may arise.
 
 I relinquish my copyright and will not exercise my neighboring rights.
+I have relinquished all rights to my characters and illustrations, but please strictly adhere to the rules, manners, and terms of service of each social media platform.
 
 You are free to use it as you like, as long as you don't use it in a way that would be offensive to anyone who sees it.
 
