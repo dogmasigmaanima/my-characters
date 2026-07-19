@@ -13,6 +13,8 @@
 
 私のオリジナルキャラクターには名前やキャラクターごとに設定がありますが、それらの設定に必ずしも従う必要はありません。
 
+これらの私のオリジナルキャラクターを使って作られた新しい作品（イラスト、小説、ゲームなど）の著作権は、それを作った二次創作者に帰属します。私がそれらの作品の権利を主張することはありません。
+
 このファイルにはすべての画像が含まれているわけではありません。
 また、収録されている画像の多くは数年前のものです。その他の画像や最新の画像、キャラクターなどについては、外部リンクをご覧ください。
 （リンク先のサイトでは日本語で投稿していますが、英語での問い合わせも可能です。）
@@ -32,6 +34,8 @@ I have relinquished all rights to my characters and illustrations, but please st
 You are free to use it as you like, as long as you don't use it in a way that would be offensive to anyone who sees it.
 
 My original characters have names and backstories, but you don't have to adhere to those character settings.
+The copyright for any new works (illustrations, novels, games, etc.) created using these original characters belongs to the creators of those derivative works. I do not claim any rights to those works.
+
 
 This file does not contain all the images.Most of the items in this file are several years old.For other images or the latest content, please see the external link. (I use Japanese on the linked website, but I can provide support in English if needed.)
 【This link contains some of the character settings for my original characters.The site will be updated irregularly. Even for original characters without established settings, character settings and other details will be added irregularly.】Link →https://ocverse.xyz/2389316
